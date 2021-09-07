@@ -6,6 +6,7 @@ I will soon upload some of my projects! Please do not mind the mess (or lack the
 
 - [Metacosm Studios](https://twitter.com/MetacosmStudios) Staff, 3D Asset Design
 - Currently working on [VRChat The Movie](https://twitter.com/VRChatMovie)
+- If you want to show monetary appreciation, please check out my [ko-fi page](https://ko-fi.com/Manage/Index)
 
 Hit me up on Twitter at [@LiminalBridges](https://twitter.com/LiminalBridges) or on Discord Eggtart#2486 ✌
 
